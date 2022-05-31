@@ -27,6 +27,3 @@
 
 
 
-#### .
-+ Jesus Saves @JCharisTech
-+ By Jesse E.Agbe(JCharis)
